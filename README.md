@@ -1,4 +1,4 @@
-#Rise of Eros cheats redeem codes unlimited ecoin Hacks monthy pass guide
+<h1>Rise of Eros cheats redeem codes unlimited ecoin Hacks monthy pass guide</h1>
 
 Rise of Eros cheats redeem codes unlimited ecoin Hacks monthy pass guide - Dealing with direct threats is simple. If you see them harassing you or your team, try to drive them away by firing or fighting back. Of course, if the worst happens, you must retreat to your friends, and your goal seems more prepared than you think. In this case, step back and fight with others. On the other hand, the weak links are those who struggle and struggle in battle. If you don't deal with them immediately, they will reorganize and come up with a way to turn the situation around. If there is a springboard on the map, you can use it, or aim your weapon (main weapon or heavy weapon) accurately enough so that you can hit them and surprise them. Keep in mind that weak links will always be running, and be careful if you notice that they are not attacked. They may be getting ready to wear masks!
 
